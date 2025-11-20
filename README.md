@@ -139,6 +139,10 @@ The final version would heighten the tension. After the desk incident and the gr
 
 ### Example 1
 ![Promt_page-0001](https://github.com/user-attachments/assets/a6fd1dce-bbe2-4428-ba5b-50b6f9bc59b0)
+![Promt_page-0002](https://github.com/user-attachments/assets/b90e47b3-9350-4035-8eb6-ea38a9de6c8e)
+![Promt_page-0003](https://github.com/user-attachments/assets/e388a6ee-e4b9-47e4-b73c-40c6961547a6)
+
+
 
 
 ## Conclusion
